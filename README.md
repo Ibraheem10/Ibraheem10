@@ -1,4 +1,4 @@
-I need someone who can assist to gain access to We make bank data bass or zenith. 
+Anyone who can work with me on Bitcoin, USSR, credit card with online access .   I can turn it to instant cash. 
 
 - 👋 Hi, I’m @Ibraheem10
 - 👀 I’m interested in ...
